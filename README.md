@@ -1,1 +1,0 @@
-# techdesignharmony.github.io
